@@ -1,2 +1,2 @@
 # Cartalog
-Before it virually spinned off, it was cartalog
+Before it virtually spinned off, it was cartalog
